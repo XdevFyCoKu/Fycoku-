@@ -1,0 +1,2 @@
+# Fycoku-
+Start page 
